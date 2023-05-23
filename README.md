@@ -1,4 +1,6 @@
 # playground
-Sandbox repository for May 23 git lunch and learn
+A giant panda is perched atop a tree branch, its black and white fur contrasting against the grey bark of the tree. The animal's face is turned towards the camera, its small snout poking out from between two large ears. Its eyes are wide open, alertly taking in its surroundings as it clings to the branch with all four paws.
 
-Never gonna give you uuuuuup, never gonna let you dowwwwn...
+The panda has a thick coat of fur that covers most of its body, except for patches on its muzzle and around its eyes which are lighter in color than the rest of it. It has a round head with short rounded ears and a long tail that hangs down behind it. Its front legs have sharp claws which help it grip onto branches while climbing trees or rocks.
+
+The giant panda is an endangered species native to China where they live mainly in bamboo forests at high altitudes. They feed mostly on bamboo shoots but also eat other plants such as grasses and fruits when available. Pandas spend much of their time eating or sleeping during daylight hours but can be active at night too if disturbed by humans or predators like snow leopards or wolves.
